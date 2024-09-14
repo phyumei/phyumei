@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @phyumei
+- 😄 Pronouns: she/her
